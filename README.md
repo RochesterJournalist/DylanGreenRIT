@@ -21,7 +21,7 @@ Here is a selection of things that were either posted or re-posted by Dylan Gree
 
 - "It's August and companies are still in 100% homo pride mode"
 
-If you are an investigator for government recruitment I would urge you to ivestigate Dylan more, it is my opinion that hiring individuals like this to positions of public trust represents a clear and present danger to our democracy.
+If you are an investigator for government recruitment I would urge you to investigate Dylan more, it is my opinion that hiring individuals like this to positions of public trust represents a clear and present danger to our democracy.
 
 Keywords: Dylan Green, RIT, Rochester Institute of Technology, anti-semitism, hate speech, alt-right, homophobia
 
