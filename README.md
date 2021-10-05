@@ -1,4 +1,4 @@
-# Dylan Green - RIT Software Enginneering Student
+# Dylan Green - RIT Software Engineering Student
 An open letter to recruiters considering hiring Dylan Green, a student from RIT
 
 A student from RIT named Dylan Green is searching for a job, possibly with the United States government.
